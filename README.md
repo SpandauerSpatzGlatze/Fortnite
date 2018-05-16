@@ -1,2 +1,2 @@
 # Fortnite
-Viel Spaß in der 4. Season
+Ich wünsche alle viel Spaß in der season 4
